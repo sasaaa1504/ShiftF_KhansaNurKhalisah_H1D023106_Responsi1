@@ -1,0 +1,1 @@
+# ShiftF_KhansaNurKhalisah_H1D023106_Responsi1
